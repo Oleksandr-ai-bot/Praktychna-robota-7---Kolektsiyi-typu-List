@@ -1,0 +1,1 @@
+# Praktychna-robota-7---Kolektsiyi-typu-List
